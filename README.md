@@ -1,0 +1,1 @@
+# Analisis_Big_Data_Tugas1Oulad_R.Maudy_198
